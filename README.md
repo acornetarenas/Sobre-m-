@@ -1,0 +1,5 @@
+Me llamo Alba y soy estudiante de Ingeniería de Telecomunicaciones en la UPC. Si algo me define es mi capacidad para aprender rápido, junto con mis ganas de adaptarme a nuevos entornos y asumir retos.
+Me considero una persona resolutiva, muy acostumbrada al trabajo en equipo y con un fuerte compromiso por hacer bien todo lo que empiezo. Cuando me enfrento a algo nuevo, no paro hasta entenderlo y hacerlo correctamente.
+Fuera de la ingeniería, me gusta mantenerme activa: en invierno esquío siempre que puedo y, en mi día a día, combino running, pádel y tenis. El deporte forma una parte importante de mi vida, ya que me permite superarme y desconectar.
+También me gusta la música y toco la guitarra. En general, disfruto aprendiendo cosas nuevas y probando cosas distintas, tanto a nivel personal como profesional.
+Actualmente, estoy buscando mi primera oportunidad profesional en una empresa donde pueda aplicar los conocimientos adquiridos durante la carrera y, sobre todo, seguir aprendiendo y aportando valor desde el primer momento.
